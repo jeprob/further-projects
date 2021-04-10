@@ -1,0 +1,1 @@
+Various interesting projects completed during my studies.
